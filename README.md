@@ -1,3 +1,1 @@
 # colabo
-hdd
-dghkulio;
